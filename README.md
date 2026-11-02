@@ -56,11 +56,11 @@ Python programming language | Data science | AI|Engineering First year Mathemati
 
 ### My future goal
 # Short term goal
-Achieve a fully funded scholarship in University and complete my bachelor's degree in computer science major and be professional in AI and Machine Learning field.
+Achieve a fully funded scholarship in SOUTH KOREAN or INDIAN University and complete my bachelor's degree in computer science major and be professional in AI and Machine Learning field.
 
 # Long term goal 
-Work in a corporate company and build professional skills and start a startup which leads on globally.
-## I want global career and be a good leader.
+Work in a corporate company and build professional skills and start a startup which leads on globally.And present Indian technology at global level. Inspire girls in my community and Help students from underprivileged backgrounds pursue higher education.
+##I aspire to build a global career and become a technology leader like Sundar Pichai.
 
 😊😊 THANK YOU FOR VISITING MY PROFILE!!
 HAVE A NICE DAY....
