@@ -60,7 +60,7 @@ Achieve a fully funded scholarship in SOUTH KOREAN or INDIAN University and comp
 
 # Long term goal 
 Work in a corporate company and build professional skills and start a startup which leads on globally.And present Indian technology at global level. Inspire girls in my community and Help students from underprivileged backgrounds pursue higher education.
-##I aspire to build a global career and become a technology leader like Sundar Pichai.
+##I aspire to build a global career and become a technology leader.
 
 😊😊 THANK YOU FOR VISITING MY PROFILE!!
 HAVE A NICE DAY....
