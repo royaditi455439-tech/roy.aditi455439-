@@ -23,6 +23,7 @@ To become an AI and Machine learning professional and build technology that solv
 6. Two peer tutoring program
 7. Tree plantation
 8. Programming club member
+9. Victory award for saving a child life.
 # WORK 
 Currently working as a English and Mathematics tutor of high school students.
 
